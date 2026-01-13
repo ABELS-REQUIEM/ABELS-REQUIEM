@@ -3,7 +3,7 @@
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/eb6f6bc5-cef4-42e7-90ee-fbf5e3ea2039" />
 <img width="1246" height="240" alt="image" src="https://github.com/user-attachments/assets/07c8bf7a-1241-4d72-892b-4ed568bc70a1" />
 
-<img width="173" height="50" alt="image" src="https://github.com/user-attachments/assets/06f63185-4794-460e-a318-65b7d897f7a1" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 Please continue down!!
