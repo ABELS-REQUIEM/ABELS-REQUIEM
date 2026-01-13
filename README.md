@@ -1,9 +1,15 @@
-# ``"SHE WANTS TO DANCE LIKE UMA THURMAN, BURY ME TIL I CONFESS."``
+# ``"I'M TWO QUARTERS AND A HEART DOWN, AND I DON'T WANNA FORGET HOW YOUR VOICE SOUNDS."``
 <img width="1246" height="240" alt="image" src="https://github.com/user-attachments/assets/dfa1e767-8d2a-47f8-8877-36062336445a" />
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/eb6f6bc5-cef4-42e7-90ee-fbf5e3ea2039" />
 <img width="1246" height="240" alt="image" src="https://github.com/user-attachments/assets/07c8bf7a-1241-4d72-892b-4ed568bc70a1" />
 
+# "I ONLY WANT SYMPATHY IN THE FORM OF YOU CRAWLING INTO BED WITH ME."
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+![](https://komarev.com/ghpvc/?username=ABELS-REQUIEM&color=yellow) ![tumblr_118fd43958aca7793aece001e36ea35f_45dcf22e_75](https://github.com/user-attachments/assets/3b279705-ec6b-4ad4-bf71-32587cc519c8) <img alt="GitHub followers" src="https://img.shields.io/github/followers/ABELS-REQUIEM?style=flat&label=FRIENDS;&labelColor=yellow&color=gold">
 
 
 Please continue down!!
