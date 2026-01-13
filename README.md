@@ -72,7 +72,7 @@ Please continue down!!
 - People who constantly bug me
 - Begging to bmf/Begging to dm or for me to reply (I'm busy! I have a job and school..please stop)
 - Being asked out..scratches head.
-- Flirting
+- Flirting, romantic/sexual anything (You are not my partner)
 
 <img width="287" height="23" alt="image" src="https://github.com/user-attachments/assets/799e7e40-b853-4b4a-8d42-8ea07c0494b0" /><img width="287" height="23" alt="image" src="https://github.com/user-attachments/assets/27b32f69-57d5-44b8-96ec-2687e0aa9f3a" />
 
