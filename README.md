@@ -11,6 +11,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ABELS-REQUIEM&color=yellow) ![tumblr_118fd43958aca7793aece001e36ea35f_45dcf22e_75](https://github.com/user-attachments/assets/3b279705-ec6b-4ad4-bf71-32587cc519c8) <img alt="GitHub followers" src="https://img.shields.io/github/followers/ABELS-REQUIEM?style=flat&label=FRIENDS;&labelColor=yellow&color=gold">
 
+![pony-town-Abel ,, me! c+h _ Sign ata!!-trot-blinking-padded-toy29-6x](https://github.com/user-attachments/assets/fa5e7b81-4a66-4735-975d-50a9a3c0e0ee)
 
 Please continue down!!
 
